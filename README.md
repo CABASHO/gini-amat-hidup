@@ -1,0 +1,1 @@
+# gini-amat-hidup
